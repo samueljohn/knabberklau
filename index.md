@@ -1,5 +1,6 @@
 
-# Geheimplan Stufe 2 🦹🏼‍♂️  -> 🍫🍪🍩🍡 -> 💨 
+# Geheimplan Stufe 2 
+# 🦹🏼‍♂️  -> 🍫🍪🍩🍡 -> 💨 
 
 Diese Webseite ist extrem gut versteckt. Nur wer den QR code hat, kann sie aufrufen.
 
@@ -14,9 +15,11 @@ Aber wir müssen auf der Hut sein, die Detektivinnen sollen gut sein. Angeblich 
 Deshalb muss ich, der geniale Knuth Knabberklau, den Zugang zum nächsten Hinweispunkt verstecken. 
 Seid auf der Hut!
 
-# Der Treffpunkt lautet: F U	D	I	P	U	P	S	X	A
+# Der Treffpunkt lautet:
 
-Dort findet ihr den Schatz.
+## F U D I P U P S X A
+
+Dort findet ihr einen Tresor 🎛️. 
 
 Aber halt, nicht sofort los. Denn für die ganz großen Gripsbirnen unter euch Gangstern gibt es noch ein Rätsel:
 
