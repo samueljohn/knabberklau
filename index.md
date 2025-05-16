@@ -23,8 +23,15 @@ Dort findet ihr einen Tresor 🎛️.
 
 Aber halt, nicht sofort los. Denn für die ganz großen Gripsbirnen unter euch Gangstern gibt es noch ein Rätsel:
 
-Zeigt mir wie schalu ihr seid und sucht mir die folgenden Hausnummern.
+Zeigt mir wie schalu ihr seid und sucht mir die folgenden Hausnummern in der Elly-Beinhorn-Str.
+Sperrt eure Gauner-Augen auf und nur die besten werden die gesuchten Hausnummern finden.
 Schreibt euch die Zahlen auf, die werden später wichtig.
 
+- grauer Sonnenschirm
+- Schnecken
+- Briefkasten mit dem englischen Wort für Liebe
+- große Schuhe
+- Bank aus 3 Holzblöcken
+- blauer Stuhl
 
 
